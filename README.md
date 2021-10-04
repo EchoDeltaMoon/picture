@@ -1,1 +1,0 @@
-# arpicture2r0a8
